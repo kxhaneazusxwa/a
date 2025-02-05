@@ -6,6 +6,9 @@ i usually have the ";" in my names so if you see it thats me!!!!
 
 i allow c+h! but not cuddles only like sitting next to me is fine and you can hide behind me too!
 
+if i have "w2i" in my name please whisper to interact! its better than interacting in public chat!
+
+
 if i troll u and you feel uncomfy please tell me! ^^ so i would stop!
 
 i ALWAYS sit next to my friends , and my awesome amazing gf>:3 
